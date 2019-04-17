@@ -1,3 +1,3 @@
-THYAGO HENRIQUE FERNANDES BEZERRA DE MENDONÇA - Estudo_emprestimos_mensal e Estudo_livros_emprestimos
+THYAGO HENRIQUE FERNANDES BEZERRA DE MENDONÃ‡A - Biblioteca: Estudo_emprestimos_mensal e Estudo_livros_emprestimos
 JEFFERSON RHUDSON PEREIRA DA SILVA - Projeto de pesquisa
-LUIS EDUARDO RIQUE FERREIRA -  trabalho 2
+LUIS EDUARDO RIQUE FERREIRA -  Biblioteca
